@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that will help me gain experience to build websites
 - 📫 How to reach me via email jerryg96@yahoo.com
 - 😄 Pronouns: he/ him/ his
-- ⚡ Fun fact: I was born in Guatemala and I am very passionate about communities that are self sustainable with the correct resources and individuals that want to give back more than they take to help the community
+- ⚡ Fun fact: I was born in Guatemala and am passionate about helping communities become more self-reliable with adequate resources. I believe it is possible to live a happy life even if you put other's needs before your own. I value teamwork, being inclusive, and allowing everyone the opportunity to voice their thoughts. I am resilient, positive, adaptable, and i follow the Golden Rule. The Golden Rule is to treat others, how you would want others to treat your mom.  
 
 <!---
 jgramaho3/jgramaho3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
